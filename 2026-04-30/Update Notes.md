@@ -1,4 +1,4 @@
-URL: https://support.borderlands.com/hc/en-us/articles/51249593802899-Borderlands-4-Version-1-6-April-30-2026#h_01KQD45Y94NQB8KMDD1A4N9FJ3
+URL: https://support.borderlands.com/hc/en-us/articles/51249593802899-Borderlands-4-Version-1-6-April-30-2026
 
 Version 1.6 - April 30, 2026
 
